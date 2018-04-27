@@ -1,2 +1,10 @@
 # BigRedHackS18
-The coolest bigredhacks idea!
+Big Red Hacks group for spring 2018!
+Group: Ayesha, Shimona, Jeremy, & Anvita. 
+Possible ideas:
+- 
+-
+-
+-
+
+
